@@ -1,0 +1,1 @@
+The contributions from the user Amadio are provided under the following conditions
